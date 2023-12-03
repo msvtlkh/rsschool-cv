@@ -4,4 +4,4 @@
     xolod.masha2015@yandex.ru
 
 ### Brief Self-Introduction
-    I am just a simple russian girl
+    I am just a simple russian girl .
